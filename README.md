@@ -1,6 +1,6 @@
 🔥 ESSA É NOVA🔥
 
-🔐 seu coração tem dono?:sim 
+🔐 seu coração tem dono?:nao
 📍nome completo?:estefany cristina bueno dos santos
 🔖apelido?: tete
 ♋ signo?:sargitario
@@ -8,8 +8,8 @@
 🌈uma cor?: preto
 🎶uma música?: desilusao hyperanhas
 🏳️‍🌈 é contra o LGBT?: nao
-💟 alguém gostando de vc?:ss
-❣️tá gostando de alguém?:ss
+💟 alguém gostando de vc?:n sei
+❣️tá gostando de alguém?:...
 💤5 primeiros emojis:n tenho
 😇um sonho?: influencier
 😘 quantidade de crush?: 1
